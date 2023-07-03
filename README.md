@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @alvarhorry
+- 👀 I’m interested in Sustainability, History of Science & Physics
+- 🌱 I’m currently learning anything to  make my life easier and automatize processes
+- 💞️ I’m looking to collaborate on anything
+- 📫 How to reach me the way people send DMs in GitHub
